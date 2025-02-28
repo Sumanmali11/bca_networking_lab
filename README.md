@@ -8,8 +8,8 @@ Hello, I am Mohanish Shrestha.
 Hello, This is me Sushmita Thapa Magar.
 Hello, I am under the water.
 भाँडामा लिएको घरझै भो जिन्दगी, कटौती हुँदैछन हरेकपल खुसीहरू
-heheheheh I am suzan ko papa
-heheheheh I am suzan ko papa
+heheheheh I am suzanka papa
+heheheheh I am suzanka papa
 ttttHello
 hello yogesh vai
 
