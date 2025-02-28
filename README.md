@@ -7,14 +7,11 @@ Hello, I am SUZAN GHIMIRE
 Hello, I am Mohanish Shrestha.
 Hello, This is me Sushmita Thapa Magar.
 Hello, I am under the water.
- भाँडामा लिएको घरझै भो जिन्दगी, कटौती हुँदैछन हरेकपल खुसीहरू
-heheheheh I am suzanka papa
-heheheheh I am suzanka papa
+भाँडामा लिएको घरझै भो जिन्दगी, कटौती हुँदैछन हरेकपल खुसीहरू
+heheheheh I am suzan ko papa
+heheheheh I am suzan ko papa
 ttttHello
-hello yogesh vai 
-
-
-
+hello yogesh vai
 
 tttt
 You need to make sure that latest version of JAVA is used!
@@ -22,7 +19,7 @@ Hello, I am SUZAN GHIMIRE
 Hello, I am Mohanish Shrestha.
 Hello, This is me Sushmita Thapa Magar.
 Hello, I am under the water.
- भाँडामा लिएको घरझै भो जिन्दगी, कटौती हुँदैछन हरेकपल खुसीहरू
+भाँडामा लिएको घरझै भो जिन्दगी, कटौती हुँदैछन हरेकपल खुसीहरू
 heheheheh I am suzanka papa
 tttt
 Kritisha Is here
@@ -33,7 +30,7 @@ Hello, I am SUZAN GHIMIRE
 Hello, I am Mohanish Shrestha.
 Hello, This is me Sushmita Thapa Magar.
 Hello, I am under the water.
- भाँडामा लिएको घरझै भो जिन्दगी, कटौती हुँदैछन हरेकपल खुसीहरू
+भाँडामा लिएको घरझै भो जिन्दगी, कटौती हुँदैछन हरेकपल खुसीहरू
 heheheheh I am suzanka papa
 tttt
 Kritisha Is here
