@@ -7,6 +7,9 @@ Hello, I am SUZAN GHIMIRE
 Hello, I am Mohanish Shrestha.
 Hello, This is me Sushmita Thapa Magar.
 Hello, I am under the water.
+ भाँडामा लिएको घरझै भो जिन्दगी, कटौती हुँदैछन हरेकपल खुसीहरू
 heheheheh I am suzanka papa
 tttt
 Kritisha Is here
+heheheheh I am suzanka papa
+tttt
